@@ -1,2 +1,2 @@
 # Ur-On-Mute
-Info Repo
+Profile picture: Mute by Luthfi Asiddiqi from the Noun Project
